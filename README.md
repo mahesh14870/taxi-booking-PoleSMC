@@ -8,8 +8,7 @@ vhadbcvdhjbvchdbvvbcdhbvh
 bvvbhbfdbv vbhdfbvjhksadbvdjnvsjk
 bvdhvbsdhbvhsd hdsbvhdsbvhdbsjvhbadj
 hbds   chbbdhdsbchsadbh
-hello todayt taxt biijubg jkkshjfksd
-ksjdhfjksahflkjhdskfjhsalkjhf
+hello todayt taxt 
 bc. bc vbhscvhs. bhsdbhndsbhdsb
  dscv sbd chdsbsahb
 sbdv bsv cb b vdhsbvcdcv. hdbcjndbcdnbcjd
